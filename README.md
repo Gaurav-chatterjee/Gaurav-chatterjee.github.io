@@ -1,2 +1,2 @@
-# vish9u.github.io
+# gauravc96.github.io
 Personal Website
